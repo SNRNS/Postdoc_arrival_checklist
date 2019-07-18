@@ -10,7 +10,7 @@ Also feel free to contact Alejandro (ajs.scientia@gmail.com) with any questions 
 
 ## Visa
 
-#### Dooucble check and be in close contact with Kathy regarding your visa.
+#### Dooucble check and be in close contact with Kathy (sadowskk@mskcc.org) regarding your visa.
 
 ### Do I need a visa?
 
