@@ -2,7 +2,6 @@
 
 **Updated 18 July 2019**
 
-#### NOTE: 
 This is **NOT** an official list of any type and you are responsible for double-checkinhg the information provided here. This is *only* a general guide or reference for you to get started. Since things chhange all the time, this is an ongoing work in progress, so if you encounter any novelty or have any comments all feedback will be very useful for future incoming postdocs.
 
 ## Visa
