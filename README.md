@@ -34,8 +34,9 @@ For offcial information please contact MSKCC HR. You should be in contact with t
 
 ## Travel
 
-**Important**
-Bring your visa a DS-2019 certificate with you, since these will be asked by the broder control at the US airport.
+**IMPORTANT**
+
+Bring your visa a DS-2019 certificate with you, since these will be asked by the broder control at the US airport. They are allow to not grant you access to the US if you do not have these documents with you, and if they are not nice, you will have to call HR, etc. So just bring these paper with you, and you will be good.
 
 ### How do I get there?
 
