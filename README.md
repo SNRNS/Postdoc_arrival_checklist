@@ -86,6 +86,10 @@ Talk with Kathy about getting you into payroll, so you know when it starts and y
 
 ### What if I get sick?
 
+**Important**
+
+In case of emergency feel free to contact (?)
+
 Once you are settled in, you will have time to get your SSN and select your health insurence. Just make sure you get them.
 
 You will have to do different tests required by HR. Just follow what they say.
