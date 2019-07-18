@@ -4,6 +4,8 @@
 
 This is **NOT** an official list of any type and you are responsible for double-checkinhg the information provided here. This is *only* a general guide or reference for you to get started. Since things chhange all the time, this is an ongoing work in progress, so if you encounter any novelty or have any comments all feedback will be very useful for future incoming postdocs.
 
+If you're an incoming postdoc and this guide was helpful (or not) please contribute to it by adding anything you think will be useful.
+
 ## Visa
 
 ### Do I need a visa?
@@ -46,6 +48,8 @@ From JFK the easiest is to take an uber to NYC.
 
 ## Housing
 
+### Where will I sleep?
+
 If you get MSKCC housing, you will have to pay on your arrival 1 month deposit + your first month of rent.
 
 MSKCC housing is unfurnished, thus what we recommend is for you to arrive in a weekday and early so that stores are open and people in the lab are there too in case you need anything (try not to arrive late nor in Friday or weekend):
@@ -60,14 +64,26 @@ Feel free to contact Alejandro [ajs.scientia@gmail.com](ajs.scientia@gmail.com) 
 
 Housing is selected by HR for you. In principle you can let them know any preferences you may have, and hopefully they will find the most suitable for you.
 
-## Payroll
+### What do I do if I am hungry?
 
-Talk with Kathy about getting you into payroll, so you know when it starts and you can plan accordingly.
+There are plenty of restaurants and coffee shops around, but look for a diner (remember in the US they expect 20% tip) for a full meal or look for sweetgreen if you want something healthy, tasty, substantial and not pricy (~$13) plus no tip. -- You're welcome :) 
 
 ## Bank account
 
+### How can I open a bank account?
+
 You can apply for a bank account as soon as you arrive. There is are many banks around MSKCC, but perhaps the closest is Chase and you can get a debit card very quickly. Just bring your visa a an passport.
+
+## Payroll
+
+### When will I receive my fort payment?
+
+Talk with Kathy about getting you into payroll, so you know when it starts and you can plan accordingly.
 
 ## Social Security Number
 
-Once you are settled in, you will have time to get your SSN and select your health insurence. Just make sure you get them
+### What if I get sick?
+
+Once you are settled in, you will have time to get your SSN and select your health insurence. Just make sure you get them.
+
+You will have to do different tests required by HR. Just follow what they say.
