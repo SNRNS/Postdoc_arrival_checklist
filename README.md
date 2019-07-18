@@ -6,6 +6,8 @@ This is **NOT** an official list of any type and you are responsible for double-
 
 If you're an incoming postdoc and this guide was helpful (or not) please contribute to it by adding anything you think will be useful.
 
+Also feel free to contact Alejandro (ajs.scientia@gmail.com) with any questions you may have.
+
 ## Visa
 
 ### Do I need a visa?
@@ -60,7 +62,7 @@ MSKCC housing is unfurnished, thus what we recommend is for you to arrive in a w
 
 3) If you come in the winter, also order a sleeping bag or some warm bed stuff. In the winter it can get down to -15 celcius. If you come in the summer, no need to worry about sleeping bag.
 
-Feel free to contact Alejandro (ajs.scientia@gmail.com) in case you wanted to leave your suitcases somewhere or had any issues with finding a place to stay before you manage to arrive at your new place.
+In case you wanted to leave your suitcases somewhere or had any issues with finding a place to stay before you manage to arrive at your new place feel free to contact Alejandro (ajs.scientia@gmail.com).
 
 Housing is selected by HR for you. In principle you can let them know any preferences you may have, and hopefully they will find the most suitable for you.
 
