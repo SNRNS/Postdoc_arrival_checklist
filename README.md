@@ -10,6 +10,8 @@ Also feel free to contact Alejandro (ajs.scientia@gmail.com) with any questions 
 
 ## Visa
 
+#### Dooucble check and be in close contact with Kathy regarding your visa.
+
 ### Do I need a visa?
 
 Incoming non-USA citizens who want to do a postodc in the US, need to get a visa for the specific purpose of their postdoc.
