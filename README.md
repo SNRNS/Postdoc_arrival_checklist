@@ -34,7 +34,10 @@ For offcial information please contact MSKCC HR. You should be in contact with t
 
 ## Travel
 
+**Important**
 Bring your visa a DS-2019 certificate with you, since these will be asked by the broder control at the US airport.
+
+### How do I get there?
 
 Closest airport is [JFK](https://www.jfkairport.com/).
 
